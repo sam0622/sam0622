@@ -1,2 +1,2 @@
 - 👋 Hi, I’m @sam0622
-- 👀 I’m interested in ... not j*bs
+- 👀 I’m interested in ... men
